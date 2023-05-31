@@ -1,7 +1,7 @@
 ## Trying my best 🐳
 
 </br>
-I'm aiming to be a back-end developer! </br>
+aiming to be a back-end developer </br>
 </br>
 
 **About me**
