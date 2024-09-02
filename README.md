@@ -1,7 +1,7 @@
 ## Trying my best 🐳
 
 </br>
-Java Fullstack developer </br>
+Fullstack developer </br>
 </br>
 
 **About me**
